@@ -2,6 +2,8 @@
 
 **Run 3 Unblocked** is not just a game – it’s a **legendary intergalactic adventure** that will test your reflexes, push your limits, and keep you coming back for more. Dive into a **hyper-speed tunnel runner** set in the far reaches of outer space, where gravity is broken and danger lurks at every turn!
 
+## <a href="https://1kb.link/oNUeyZ">👉 Click To Play Run 3 Unblocked NOW 👈</a>
+
 ### 🌀 **What is Run 3?**
 
 Run 3 is a **3D endless runner** game that combines **fast-paced action**, **gravity-defying mechanics**, and **space-themed levels**. You control a small alien (or other unlockable characters) running through a crumbling space tunnel. Dodge gaps, jump over holes, run on walls, and **explore mind-bending levels** that twist and turn in unexpected ways.
